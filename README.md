@@ -1,0 +1,1 @@
+# G1---Texto-gerado-por-IA
